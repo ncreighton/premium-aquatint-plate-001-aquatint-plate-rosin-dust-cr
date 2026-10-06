@@ -1,0 +1,2 @@
+# premium-aquatint-plate-001-aquatint-plate-rosin-dust-cr
+Tired of losing track of which plate got a 30-second rosin dust and which one got a minute? Stop guessing and start printing with confidence.  The Aquatint Plate &amp; Rosin Dust Craft Hub is a Notion template that eliminates the chaos of managing multiple aquatint plates, rosin dust batches, and etching stages. Log every plate’s dust application time,
